@@ -17,4 +17,11 @@ Not in that particular order of course, I'm writing this as I go. Anyway, I gues
 ...because from his point of veiw 1984 was the future, and everyome had weird ideas for the future. 
 ## Context
 Time for a crash course in everything you need to know about the man:
-- 
+- Had a few run-ins with the Soviets
+- Not a fan of the Nazis
+- Died before 1984, his book was a cautionary tale so people don't let it happen
+
+And that's about it. You really don't need to know much about him to understand the story, and even if yyou had no idea who he was it is still possible to understand why it was written, which I find very nice.
+
+## Setting
+![Setting](https://i.ytimg.com/vi/N5USpsvsNJw/maxresdefault.jpg)

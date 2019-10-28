@@ -51,9 +51,11 @@ Isn't the place just *lovely*? Oh, and Oceania is essentially the Soviet Union, 
 
 ![The Plot so Far](https://slideplayer.com/slide/783024/3/images/2/The+plot+so+far+%E2%80%A6.jpg)
 
-Unfortunately, I *have not* (as of this moment) read the full story. However, I have read enough to *predict* where the story is going, based on the amount of pages remaining and how little has been done so far.
+Unfortunately, I *have not* (as of this moment) read the full story. However, I have read enough to *predict* where the story is going, based on the amount of pages remaining and how little has been done so far. And on top of that, I'm only here to talk about wjat I've read, adding speculation would only be a disservice to those who want a summary. 
+
+In the event that whoever is reading this has not read the book, it a pdf could be found *[here](https://www.planetebook.com/free-ebooks/1984.pdf)*
 
 ## The Writing
 ![A Bunch of Words in a Mess](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ_fwFweK0zmdPlsL2nCiLNEphFvDydiYrNGORwQAafB1mM0rmb&s)
 
-If you want to read the book before I delve into the writing, a pdf can be found *[here](https://www.planetebook.com/free-ebooks/1984.pdf)*.
+Once again, if you have not read the book I suggest you read *[thw pdf](https://www.planetebook.com/free-ebooks/1984.pdf)* before I start looking too far into this.

@@ -58,4 +58,4 @@ In the event that whoever is reading this has not read the book, it a pdf could 
 ## The Writing
 ![A Bunch of Words in a Mess](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ_fwFweK0zmdPlsL2nCiLNEphFvDydiYrNGORwQAafB1mM0rmb&s)
 
-Once again, if you have not read the book I suggest you read *[thw pdf](https://www.planetebook.com/free-ebooks/1984.pdf)* before I start looking too far into this.
+Once again, if you have not read the book I suggest you read *[the pdf](https://www.planetebook.com/free-ebooks/1984.pdf)* before I start looking too far into this.

@@ -59,7 +59,17 @@ Now then, the story thus far can be summarized as follow:
 
 Winston Smith, our middle aged protagonist, is a member of the Outer Party in Oceania, meaning he's say... middle class. The thing is the place is completely controlled by "The Party" (yes, just "The Party", mostly the Inner Party though) and everywhere there are posters, propaganda, and telescreens which the police use to watch people. This sounds bad enough, but it gets worse because everyone is fine with everything nd believes every word the party says to the point of ignoring any and all facts. Naturally, Winston does not like this and sets forth to hopefully keep his sanity in a world full of lunatics obsessed with the Party, and with the head of the Party, Big Brother.
 
+
+
 ## The Writing
 ![A Bunch of Words in a Mess](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ_fwFweK0zmdPlsL2nCiLNEphFvDydiYrNGORwQAafB1mM0rmb&s)
 
 Once again, if you have not read the book I suggest you read *[the pdf](https://www.planetebook.com/free-ebooks/1984.pdf)* before I start looking too far into this and completely misunderstand what I'm reading.
+
+## What I Should Add Later
+
+Due to time constraints, I'll need to finish the folliwing at a later date:
+
+1. The summary because so far I only have the basic premise
+2. The writing, because anything that I say would be a disservice to the author. I'll need to come back to this when I can accurately describe it to those who don't want to read it.
+3. *This entire list*
